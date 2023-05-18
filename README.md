@@ -12,10 +12,13 @@
      primarily of superpowered and gifted individuals, described as "Earth's Mightiest Heroes", who are committed to the world's protection from a variety of threats. 
      The Avengers are depicted as operating in the state of New York: originally from the Avengers Tower in Midtown Manhattan and subsequently from the Avengers 
      Compound in Upstate New York.
- ## VENOM
+ ## Venom
      - Venom is a 2018 American superhero film featuring the Marvel Comics character of the same name, produced by Columbia Pictures in association with Marvel 
      Entertainment[5] and Tencent Pictures, and distributed by Sony Pictures Releasing. It is the first film in Sony's Spider-Man Universe (SSU) and is directed by 
      Ruben Fleischer from a screenplay by Jeff Pinkner, Scott Rosenberg and Kelly Marcel. It stars Tom Hardy as Eddie Brock and Venom alongside Michelle Williams, Riz 
      Ahmed, Scott Haze, and Reid Scott. In the film, struggling journalist Brock gains superpowers after becoming the host of an alien symbiote, Venom, whose species 
      plans to invade Earth.
-😂
+
+*Angello Agravio* 😹
+*Patrick Saure* 😂
+*Mark Gelson R. Cana* 👹
